@@ -9,4 +9,4 @@ Rajveer Singh was here!!
 
 Hi Im Batman
 
-Mayank Aggarwal ( BCA 3rd Sem - IOT/ROBOTICS )
+Mayank Aggarwal ( BCA IITM 3rd Sem - IOT/ROBOTICS ) 
